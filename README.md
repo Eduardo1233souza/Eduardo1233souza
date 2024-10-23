@@ -1,4 +1,4 @@
-🇧🇷  Meu nome é Eduardo, sou torcedor santista
+🇧🇷  Meu nome é Eduardo, sou torcedor santista 🥇⚽
 
 ## entre em contato
 eduardo.souza.santos.1233@gmail.com
